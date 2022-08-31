@@ -1,6 +1,5 @@
 
 <h1 align="left">Hello World!!</h1>
-###
 <h3 align="center">My name is Vinith and I'm a MERN-STACK developer, from INDIA</h3>
 
 ###

@@ -67,4 +67,4 @@
 <p align="left">(❁´◡`❁) Have a good day☀ | | night 🌙</p>
 
 ###
-⭐️ From [anathayna](https://github.com/anathayna)
+⭐️ From [Vinith](https://github.com/vd9900)

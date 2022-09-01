@@ -20,7 +20,7 @@
 
 ###
 
-<p align="left">🔹 🧩 Hobbies: scrolling📱/volleyball/🎬movies</p>
+<p align="left">🔹 🧩 Hobbies: scrolling📱/volleyball🏐/🎬movies</p>
 
 ###
 

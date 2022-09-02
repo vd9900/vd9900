@@ -60,7 +60,7 @@
 
 ###
 
-<p align="left">(❁´◡`❁) Have a good day☀ | | night 🌙</p>
+<p align="left">(❁´◡`❁) Have a good day☀</p>
 
 ###
 ⭐️ From [Vinith](https://github.com/vd9900)

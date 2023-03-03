@@ -16,7 +16,7 @@
 
 ###
 
-<p align="left">🔹 🎯 Goals: Great Developer👌/Earn 6 figures in dollars🙄/Keep learning😇.</p>
+<p align="left">🔹 🎯 Goals: Great Developer👌/Keep learning😇.</p>
 
 ###
 

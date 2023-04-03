@@ -8,7 +8,7 @@
 
 ###
 
-<p align="left">🔹 😎 I’m currently playing with full-stack development.</p>
+<p align="left">🔹 😍 I enjoyed working on full-stack development.</p>
 
 ###
 
